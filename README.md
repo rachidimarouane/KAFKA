@@ -1,0 +1,8 @@
+![4 (1)](https://github.com/rachidimarouane/KAFKA/assets/148807361/a90a97f3-ae86-4d26-8b24-d3a838b0f34a)
+![3](https://github.com/rachidimarouane/KAFKA/assets/148807361/e4915ed2-2d76-4595-85cd-c9ef34b3d3fe)
+![2](https://github.com/rachidimarouane/KAFKA/assets/148807361/4d05db48-e3ac-43b3-8808-db9438eb82d5)
+![1](https://github.com/rachidimarouane/KAFKA/assets/148807361/4dee4070-71f1-4439-8e54-d99db054695b)
+![analytics2](https://github.com/rachidimarouane/KAFKA/assets/148807361/c44136a8-eddd-47ed-8ded-de43f4329a5f)
+![analytics](https://github.com/rachidimarouane/KAFKA/assets/148807361/74b8e1e4-5f11-41a9-a3b1-7cf4aa2ea31d)
+![6](https://github.com/rachidimarouane/KAFKA/assets/148807361/730f53f9-3291-468c-9e73-023a6b1dd428)
+![5](https://github.com/rachidimarouane/KAFKA/assets/148807361/fbdfe36d-2b5b-42f3-b8f3-6a3716e69246)
